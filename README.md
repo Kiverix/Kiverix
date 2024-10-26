@@ -1,7 +1,7 @@
 hi
 i'm kiverix, an eccentric young guy that is gonna study cybersecurity.
 you can contact me on my discord: chernobyl_bag.
-i'm interessted in space, and consider myself a "space nerd", and i play alot of Kerbal Space Program.
+i'm interessted in space, and consider myself a "unsmart person", and i play alot of Kerbal Space Program.
 if you need something, don't ask me, i probably can't help.
 bye i guesse.
 
